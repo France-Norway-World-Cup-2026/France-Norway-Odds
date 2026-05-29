@@ -124,7 +124,7 @@ The 2026 World Cup clash between Norway and France is a meeting of two superstar
 
 <div align=center>
 
-[![▶ BET ON THE MATCH NOW](https://i.postimg.cc/tCGdvCST/Snimok-ekrana-2026-05-23-v-18-58-01.png)](https://lkzq.cc/fd1b)
+[![▶ BET ON THE MATCH NOW](https://i.postimg.cc/90H8VHCH/bet-now-button-(1).png)](https://lkzq.cc/fd1b)
 
 </div>
 
